@@ -5,4 +5,4 @@ OldSchool player mp3 on desktop
 
 
 
-you can only drop or choose the folder with songs and play the music Have fun to using this player :D
+you can only drop or choose folder with songs and play the music Have fun to using this player :D
